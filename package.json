@@ -1,0 +1,15 @@
+{
+    "name": "the-science-of-motivation-harnessing-the-secrets-of-achieving-your-goals-and-dreams-with-proven-techniques",
+    "version": "1.0.0",
+    "description": "",
+    "main": "index.js",
+    "scripts": {
+        "test": "echo \"Error: no test specified\" && exit 1"
+    },
+    "keywords": [],
+    "author": "",
+    "license": "ISC",
+    "devDependencies": {
+        "honkit": "^4.0.7"
+    }
+}
