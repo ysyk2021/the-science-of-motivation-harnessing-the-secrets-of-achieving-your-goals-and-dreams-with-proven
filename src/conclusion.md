@@ -1,5 +1,8 @@
 # Conclusion
 
+Chapter 10: Conclusion
+======================
+
 In this book, we have explored various techniques and strategies for harnessing the secrets of achieving your goals and dreams with proven techniques. From understanding the science of motivation to building habits for success, we have covered a wide range of topics related to achieving personal and professional success.
 
 Summarizing Key Points Presented in the Book
