@@ -1,4 +1,4 @@
-Chapter 3: Understanding Motivation and Its Importance
+Understanding Motivation and Its Importance
 ======================================================
 
 In this chapter, we will delve into the concept of motivation and its crucial role in achieving our goals and dreams. By understanding the intricacies of motivation, we can harness its power and utilize proven techniques to propel ourselves towards success.

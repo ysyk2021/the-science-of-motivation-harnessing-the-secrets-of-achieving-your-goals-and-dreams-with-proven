@@ -1,4 +1,4 @@
-Chapter 8: Strategies for Rewards, Praise, and Celebration
+Strategies for Rewards, Praise, and Celebration
 ==========================================================
 
 Rewards, praise, and celebration are powerful tools that can fuel motivation and enhance our ability to achieve our goals and dreams. In this chapter, we explore effective strategies for implementing these techniques and harnessing their impact on our motivation and success.

@@ -1,4 +1,4 @@
-Chapter 3: Setting Effective Goals
+Setting Effective Goals
 ==================================
 
 Setting goals is a crucial step in achieving success and realizing our dreams. Effective goal-setting provides direction, clarity, and motivation for taking action. In this chapter, we will explore the key elements of setting effective goals and discuss proven techniques that can enhance goal achievement.

@@ -1,4 +1,4 @@
-Chapter 2: Defining Key Concepts: Intrinsic and Extrinsic Motivation, Goal-Setting, and Self-Determination
+Defining Key Concepts: Intrinsic and Extrinsic Motivation, Goal-Setting, and Self-Determination
 ==========================================================================================================
 
 In this chapter, we will delve into the fundamental concepts that form the basis of motivation and goal achievement. Understanding the concepts of intrinsic and extrinsic motivation, goal-setting, and self-determination is crucial for unlocking our potential and achieving our goals and dreams.

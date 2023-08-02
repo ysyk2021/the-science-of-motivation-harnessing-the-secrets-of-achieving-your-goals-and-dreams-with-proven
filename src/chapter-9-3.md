@@ -1,4 +1,4 @@
-Chapter 7: The Benefits of Building a Supportive Environment for Improved Motivation and Success
+The Benefits of Building a Supportive Environment for Improved Motivation and Success
 ================================================================================================
 
 Creating a supportive environment is not only conducive to our well-being but can also significantly impact our motivation and success. In this chapter, we explore the various benefits that come with building a supportive environment and how it can enhance our ability to achieve our goals and dreams.
