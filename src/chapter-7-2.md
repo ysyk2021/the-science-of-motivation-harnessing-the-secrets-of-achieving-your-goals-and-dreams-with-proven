@@ -1,4 +1,4 @@
-Chapter: Strategies for Overcoming Procrastination, Perfectionism, and Negative Thinking
+Strategies for Overcoming Procrastination, Perfectionism, and Negative Thinking
 ========================================================================================
 
 Introduction

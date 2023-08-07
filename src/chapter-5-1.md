@@ -1,4 +1,4 @@
-Chapter 5: Cultivating a Growth Mindset
+Cultivating a Growth Mindset
 =======================================
 
 In this chapter, we will explore the concept of a growth mindset and how it can help us achieve our goals and dreams. A growth mindset is the belief that our abilities and intelligence can be developed through dedication, hard work, and continuous learning. By cultivating a growth mindset, we can overcome challenges, embrace failures as opportunities for growth, and ultimately reach our fullest potential.

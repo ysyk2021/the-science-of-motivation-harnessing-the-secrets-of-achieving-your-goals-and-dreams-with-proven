@@ -1,4 +1,4 @@
-Chapter: Strategies for Identifying and Building Positive Habits
+Strategies for Identifying and Building Positive Habits
 ================================================================
 
 Introduction
