@@ -1,8 +1,7 @@
 Strategies for Overcoming Procrastination, Perfectionism, and Negative Thinking
 ========================================================================================
 
-Introduction
-------------
+
 
 Procrastination, perfectionism, and negative thinking can hinder our progress towards achieving our goals and dreams. In this chapter, we will explore effective strategies to overcome these obstacles and cultivate a proactive mindset. By understanding the root causes of procrastination, perfectionism, and negative thinking, we can develop practical techniques to enhance motivation, increase productivity, and foster a positive mindset.
 
