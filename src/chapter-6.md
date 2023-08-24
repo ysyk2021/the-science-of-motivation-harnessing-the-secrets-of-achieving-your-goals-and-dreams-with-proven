@@ -1,5 +1,3 @@
-Chapter 6: Building Habits for Success
-======================================
 
 Building habits for success is essential for achieving long-term goals and sustaining motivation. In this chapter, we will explore strategies for identifying and building positive habits, as well as the benefits of building habits for success for improved productivity and effectiveness.
 

@@ -1,5 +1,3 @@
-Chapter 3: Setting Effective Goals
-==================================
 
 Setting effective goals is a critical component of achieving success and maintaining motivation. In this chapter, we will explore strategies for goal-setting, planning, and implementation, as well as the benefits of setting effective goals for improved focus and achievement.
 

@@ -1,5 +1,3 @@
-Chapter 4: Enhancing Self-determination
-=======================================
 
 Self-determination is a crucial factor in achieving lasting motivation and success. By promoting autonomy, competence, and relatedness, individuals can enhance their sense of self-determination and achieve greater fulfillment and satisfaction. In this chapter, we will explore the benefits of enhancing self-determination and how it impacts individuals' motivation and well-being.
 

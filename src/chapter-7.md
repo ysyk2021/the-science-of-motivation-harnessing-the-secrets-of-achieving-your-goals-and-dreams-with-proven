@@ -1,5 +1,3 @@
-Chapter 7: Addressing Barriers to Motivation
-============================================
 
 In this chapter, we will explore common barriers to motivation and discuss strategies for overcoming them. We will focus on three major barriers to motivation: procrastination, perfectionism, and negative thinking. These barriers can prevent us from achieving our goals and undermine motivation. By understanding the root causes of these barriers and implementing effective strategies, we can overcome them and strengthen our motivation.
 

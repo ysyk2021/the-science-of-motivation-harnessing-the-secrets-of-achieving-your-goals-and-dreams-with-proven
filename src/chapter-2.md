@@ -1,5 +1,3 @@
-Chapter 2: Examining the Psychology of Motivation
-=================================================
 
 Examining the psychology of motivation can offer valuable insights into what drives behavior and how to effectively harness this drive to achieve desired outcomes. In this chapter, we will explore strategies for understanding behavioral, cognitive, and social theories of motivation and the benefits of examining the psychology of motivation for improved self-awareness and understanding.
 

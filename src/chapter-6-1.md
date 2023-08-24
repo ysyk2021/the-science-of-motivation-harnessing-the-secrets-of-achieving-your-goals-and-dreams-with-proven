@@ -1,5 +1,3 @@
-Building Habits for Success
-======================================
 
 In this chapter, we will explore the benefits of building habits for success and how they can significantly enhance productivity and effectiveness. Habits play a crucial role in our daily lives, shaping our behaviors and actions without conscious effort. By understanding the science behind habit formation and employing proven techniques, you can harness the power of habits to propel yourself towards achieving your goals and dreams.
 

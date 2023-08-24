@@ -1,5 +1,3 @@
-Enhancing Self-Determination
-=======================================
 
 Self-determination is the ability to make choices that align with our goals and values. It is a critical component of motivation, as it drives us to take action towards our desired outcomes. However, self-determination is not always easy to cultivate, as we may face obstacles that challenge our ability to align our actions with our goals. In this chapter, we explore techniques for enhancing self-determination and increasing our motivation.
 

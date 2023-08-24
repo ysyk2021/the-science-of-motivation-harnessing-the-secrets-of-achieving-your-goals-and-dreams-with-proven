@@ -1,5 +1,3 @@
-Strategies for Understanding Behavioral, Cognitive, and Social Theories of Motivation
-================================================================================================
 
 Motivation is a complex process that influences our behaviors, thoughts, and emotions. In order to gain a deeper understanding of motivation, it is essential to explore various theories that explain why we behave the way we do. This chapter delves into three prominent theories of motivation: behavioral, cognitive, and social theories. By examining these theories, individuals can better comprehend the driving forces behind their own actions and those of others.
 

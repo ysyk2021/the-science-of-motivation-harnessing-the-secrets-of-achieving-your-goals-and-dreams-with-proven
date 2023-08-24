@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 Motivation is the driving force behind all human behavior, from achieving personal goals to pursuing professional success. In this chapter, we will explore the importance of motivation and its underlying principles in achieving success.
 

@@ -1,5 +1,3 @@
-Building a Supportive Environment
-============================================
 
 Creating a supportive environment is crucial for harnessing motivation and increasing our chances of achieving our goals and dreams. In this chapter, we explore the key elements of building a supportive environment and how they contribute to our success.
 

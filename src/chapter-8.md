@@ -1,5 +1,3 @@
-Chapter 8: Strengthening Motivation through Positive Reinforcement
-==================================================================
 
 Positive reinforcement is the practice of rewarding desired behavior to increase the likelihood of that behavior being repeated in the future. By using positive reinforcement, individuals can strengthen their motivation and improve their performance and satisfaction. In this chapter, we will explore the benefits of strengthening motivation through positive reinforcement and strategies for implementing rewards, praise, and celebration.
 

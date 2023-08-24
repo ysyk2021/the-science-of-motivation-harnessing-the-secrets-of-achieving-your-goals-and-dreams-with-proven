@@ -1,5 +1,3 @@
-Chapter 9: Building a Supportive Environment
-============================================
 
 In this chapter, we will explore the importance of building a supportive environment to help strengthen motivation and achieve success. We will discuss strategies for surrounding yourself with positive influences, finding accountability partners, and collaborating with others. Finally, we will examine the benefits of building a supportive environment for improved motivation and success.
 

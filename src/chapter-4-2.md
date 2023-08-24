@@ -1,5 +1,3 @@
-Strategies for Promoting Autonomy, Competence, and Relatedness
-=======================================================================================================
 
 Self-determination is the key to achieving lasting motivation and success. By promoting autonomy, competence, and relatedness, individuals can enhance their sense of self-determination and achieve greater fulfillment and satisfaction. In this chapter, we will explore strategies for enhancing self-determination and promoting autonomy, competence, and relatedness.
 

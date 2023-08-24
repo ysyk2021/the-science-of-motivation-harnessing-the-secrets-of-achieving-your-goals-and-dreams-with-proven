@@ -1,5 +1,3 @@
-Addressing Barriers to Motivation
-==========================================
 
 Motivation is a powerful force that drives individuals towards achieving their goals and realizing their dreams. However, there are several barriers that can hinder motivation and prevent individuals from reaching their full potential. In this chapter, we will explore some common barriers to motivation and discuss proven techniques to overcome them.
 

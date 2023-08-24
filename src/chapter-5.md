@@ -1,5 +1,3 @@
-Chapter 5: Cultivating a Growth Mindset
-=======================================
 
 A growth mindset is the belief in one's ability to grow and change through dedication and hard work. It is a powerful tool in achieving success and maintaining motivation. In this chapter, we will explore strategies for cultivating a growth mindset as well as the benefits it can bring for creativity and innovation.
 

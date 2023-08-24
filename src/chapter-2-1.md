@@ -1,5 +1,3 @@
-Examining the Psychology of Motivation
-=================================================
 
 In this chapter, we will delve into the fascinating field of motivational psychology and explore the various factors that drive individuals to pursue their goals and dreams. By understanding the underlying mechanisms of motivation, we can gain valuable insights into how we can harness this force to achieve our own aspirations.
 

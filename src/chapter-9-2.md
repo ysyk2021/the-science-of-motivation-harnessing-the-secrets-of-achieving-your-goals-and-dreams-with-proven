@@ -1,5 +1,3 @@
-Strategies for Surrounding Yourself with Positive Influences, Finding Accountability Partners, and Collaborating with Others
-==========================================================================================================================================================================
 
 Building a supportive environment is essential for achieving success and realizing one's full potential. In this chapter, we will explore strategies for surrounding yourself with positive influences, finding accountability partners, and collaborating with others to build a supportive environment.
 
